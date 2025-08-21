@@ -2,4 +2,4 @@
 - 👀 I’m interested in backend development
 - 🌱 I’m currently learning new technologies
 - 💞️ I’m looking to collaborate on secure backend
-- 📫 contact me vivekpalvp0770@gmail.com
+- 📫 contact me vivekpalvp0770@gmail.com | WhatsApp +91 7982900770
